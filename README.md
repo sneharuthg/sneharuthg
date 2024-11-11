@@ -5,6 +5,7 @@
 - 📫 How to reach me ruthsneha57@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+- reach me on linkedn &surl=MBqB3irIyCxgEs6M4qc-Wg&tera_link_id=1731231914479-45538902&tera_link_type=1
 
 <!---
 sneharuthg/sneharuthg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
